@@ -37,4 +37,4 @@ Tend to your field filled with seeds.
 
 ## Activity
 
-Pick anything tree you are fascinated about and learn how it grew.
+Pick any tree you are fascinated about and learn how it grew.
